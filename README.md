@@ -48,7 +48,8 @@
 ### Outside of Work
 🎨 Enjoy painting in spare time  
 ⛰️ Exploring nature  
-📖 Currently reading: *"The Brothers Karamazov"* – The Brothers Karamazov  
+📖 Currently reading: *The Brothers Karamazov* – Fyodor Dostoevsky
+ 
 
 ---
 ### 📫 Let's connect!
